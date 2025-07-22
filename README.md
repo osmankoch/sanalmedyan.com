@@ -1,1 +1,1 @@
-# sanalmedyan
+# sanalmedyan.com
